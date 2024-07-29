@@ -1,0 +1,7 @@
+- 👋 Ooi, sou a aninha :)
+- 🌱 Atualmente estou aprendendo a lidar com códigos.
+- 💞️ procuro colaborar em grupos
+- 📫 insta: @analuuchaves
+- 😄 ela/dela
+- ⚡ "Até que a lua se afaste da terra e se perca no espaço."
+- 🥰 NÃO GOSTO DE AFEMINADOS NÉ @MATBOLOFOFO!!!!!!!!
