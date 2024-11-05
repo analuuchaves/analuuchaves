@@ -4,4 +4,4 @@
 - 📫 insta: @analuuchaves
 - 😄 ela/dela
 - ⚡ "Até que a lua se afaste da terra e se perca no espaço."
-- 🥰 NÃO GOSTO DE AFEMINADOS NÉ @MATBOLOFOFO!!!!!!!!
+- 🥰 NÃO GOSTO DE AFEMINADOS NÉ @MATBOLOFOFO!!!!!!!!!!!!!!!!!!!!!!!!!!
